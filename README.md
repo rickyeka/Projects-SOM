@@ -1,0 +1,3 @@
+# Projects-SOM
+ RICKY EKA KURNIA SUSPRASETYA (1614311020) [tugas 3 SOM (masuk uas)]
+---HISTOGRAM----
